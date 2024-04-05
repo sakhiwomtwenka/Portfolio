@@ -24,6 +24,13 @@
 **Cashier and Sales Consultant @ Pep Stores (_January 2014 - December 2014)**
 - Worked as a cashier at the point of sales
 - Responsible for replenishing stock on the shop floor
-- Performing stocktake on a monthly basis
+- Performing stocktake every month
+
+## Leadership Roles
+**Chairperson @ Masonic Home for Quadriplegics and Paraplegics (_January 2016 - Present_)**
+- Managing the cost of the home
+- Managing staff
+- Raising funds for the cause
+- Scheduling monthly management meetings
   
 
