@@ -4,7 +4,7 @@
 
 ## Education
 - MIT., Big Data Science | The University of Pretoria (_December 2023_)
-- BCom Honours., Information Systems | The University of Western Cape (_December 2018_)
+- BCom Honours., IS | The University of Western Cape (_December 2018_)
 - Bsc., IT | The University of Cape Town (_December 2013_)
   
 ## Work Experience
